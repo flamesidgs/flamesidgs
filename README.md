@@ -11,3 +11,4 @@
 - ▶  Youtube   : https://www.youtube.com/channel/UCmCHvdZuZjpN5pJrLEFhT5A
 - 😄 Pronouns: Susman
 - ⚡ Fun fact: Nothin' any fucking funny
+- Sponsors: https://github.com/sponsors/flamesidgs/
